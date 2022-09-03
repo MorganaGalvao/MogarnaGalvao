@@ -1,4 +1,4 @@
-# Mogarna Galvao
+# Morgana Galvao
 
 <h1 align="center"> 👋 Hi there! I’m Morgana Maria Galvão</h1>
 
